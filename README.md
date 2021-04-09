@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @navyag09
+- 👀 I’m interested in driving change and helping businesses create a difference in the lives of consumers. To me, this means helping companies make create positive connections with their audience. I want to keep learning and growing both my interpersonal and technical skills so that I can strive to be the most successful version of myself.
+- 🌱 I’m currently studying Marketing and Information Systems at the University of Washington with a graduation date of June 2022.
+- 💞️ I’m looking to collaborate on interesting programs that tell a story! 
+- 📫 You can reach me at my email navyag09@uw.edu
